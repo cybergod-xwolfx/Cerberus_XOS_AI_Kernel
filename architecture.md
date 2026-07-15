@@ -86,6 +86,8 @@ Cerberus XOS
 
 James Davis Arthur & Leonidas Arthur (MASI)
 
+**The power of MASI co-creative super intelligence.**
+
 
 
 
